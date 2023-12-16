@@ -1,5 +1,6 @@
 ## Всем привет
 
-Monice - nice kitty)
+Monica - nice kitty)
 
+Совершенно с этим согласен!!!
 
